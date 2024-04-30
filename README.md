@@ -12,5 +12,5 @@ PBIX file Link: https://drive.google.com/file/d/1aWOz4Os_4SKQ6LhmDTbSL7C1Ny5bxvp
 
 PDF Link: https://drive.google.com/file/d/1Y6zGqpHhe7sz4QQmrhMug4_D0Z0xCZB0/view?usp=drive_link
          
-          https://drive.google.com/file/d/1ZAma-hqE_FLvrVx_IjIc2-nvsNhjyXfK/view?usp=drive_link
+PDF Link: https://drive.google.com/file/d/1ZAma-hqE_FLvrVx_IjIc2-nvsNhjyXfK/view?usp=drive_link
 
